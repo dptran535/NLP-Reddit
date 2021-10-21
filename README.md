@@ -1,4 +1,4 @@
-## Dennis Tran, DSI-Deckard
+## Dennis Tran
 
 ## Executive Summary
 
